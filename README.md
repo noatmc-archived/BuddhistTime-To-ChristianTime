@@ -1,2 +1,1 @@
-# BuddhistTime-To-ChristianTime
-i hate my school teacher
+# I hate my teacher
